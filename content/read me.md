@@ -1,1 +1,1 @@
-what drives you to do all of this madness. because it kills my ignorance.
+what drives you to do all of this madness. because it kills my ignorance. is it working? who are you truly now?
